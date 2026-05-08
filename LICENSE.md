@@ -1,4 +1,4 @@
-
+rare Alfred for macOS Automation | multi-device sync + goal tracking offers the most advanced Alfred for macOS automation, with multi-device sync and goal tracking. Ideal for
 
 
 
